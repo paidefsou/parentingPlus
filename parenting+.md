@@ -1,5 +1,11 @@
 # Parenting+
 
+## Misc links from the web
+- [Teach Your Kids Bridge](https://specbranch.com/posts/teach-bridge/)
+
+## Books
+- [Playful Parenting - by Lawrence Cohen](https://sive.rs/book/PlayfulParenting)
+
 ## Education
 
 ## Puzzles & Riddles
